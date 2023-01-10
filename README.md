@@ -12,6 +12,7 @@
 * **Element** - @Readytorich:matrix.org
 * **Discord** - [Redich#2023](https://discord.com/users/1053641830639603736)
 * **Youtube** - https://youtube.com/@Redich1
+* **Tiktok** - https://www.tiktok.com/@redichgaming
 ---
 ### 🍷 Buy me a Coffee
 * **BTC** - 3M9PjVpfzSuY9VSN9tNdqH3qWUvvM41iJN

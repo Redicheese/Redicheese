@@ -4,7 +4,6 @@
 
 ### 🔥 Services
 * **Reon.gg** - [Join](http://Reon.gg)
-* **Redichgaming** - [Join](https://restorecord.com/verify/Redich%20Public)
 
 ### 🔗Social
 * **e-Mail** - Readytorich@proton.me

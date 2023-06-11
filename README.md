@@ -15,4 +15,4 @@
 ---
 ### 🍷 Buy me a Coffee
 * **BTC** - 3M9PjVpfzSuY9VSN9tNdqH3qWUvvM41iJN
-* **❤LTC** - MB8kHRK7o7JJs7UHCw9mPHCKLiixNcV5iE
+* **LTC** - MB8kHRK7o7JJs7UHCw9mPHCKLiixNcV5iE

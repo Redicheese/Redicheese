@@ -1,9 +1,9 @@
 # Redich
 ---
-**Reon.gg** , 국내 압도적 규모 1위 , 최초 루아대리 개발 및 시행업체 , **Redich Recovery Menu** 총판
+**그타대리.com Head Admin**
 
 ### 🔥 Services
-* **Reon.gg** - [Join](http://Reon.gg)
+* **그타대리.com** - [Join]([http://Reon.gg](https://xn--2i0bl9gougfz0a.com/))
 
 ### 🔗Social
 * **e-Mail** - Readytorich@proton.me

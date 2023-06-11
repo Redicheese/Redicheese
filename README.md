@@ -3,7 +3,7 @@
 **그타대리.com Head Admin**
 
 ### 🔥 Services
-* **그타대리.com** - [Join](https://xn--2i0bl9gougfz0a.com/))
+* **그타대리.com** - [Join](https://xn--2i0bl9gougfz0a.com/)
 
 ### 🔗Social
 * **e-Mail** - Readytorich@proton.me

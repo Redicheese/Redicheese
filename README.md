@@ -10,7 +10,7 @@
 * **❤Telegram** - [@Redich0_0](https://t.me/Redich0_0)
 * **Element** - @Readytorich:matrix.org
 * **Discord** - [taketwointeractive](https://discord.com/users/1053641830639603736)
-* **Youtube** - [https://www.youtube.com/@Voletop](https://www.youtube.com/@Voletop)
+* **Youtube** - https://www.youtube.com/@Voletop
 * **Tiktok** - https://www.tiktok.com/@redichgaming
 ---
 ### 🍷 Buy me a Coffee
